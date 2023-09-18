@@ -9,3 +9,5 @@ meu nome é *jessica yuki mukai*
 - estudante da escola joao XXIII
 
 - utilizo esse espaço para minha organiação e compartilhamneto dos meus projetos desenvolvidos 
+
+@yuki-mukai-2008
